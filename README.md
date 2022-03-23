@@ -2,6 +2,7 @@
 El portafolio de conocimientos y avances del curso de Algoritmos y estructuras de datos
 
 ## Clase del 22/03/22
+![Featured-images-644x376](https://user-images.githubusercontent.com/88668277/159607982-e46bda1c-7a0c-477b-9fd4-df89ed804961.jpg)
 La clase de hoy fue la introducción a Java.
 
 En la clase aprendí como utilizar el entorno de desarrollo de Java y como utilizar los conceptos básicos del lenguaje.
