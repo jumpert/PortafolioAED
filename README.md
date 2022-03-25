@@ -13,6 +13,8 @@ Una de las cosas que me ayudo a enter el tema, fue haber realizado la lectura pr
 Para aprender fue necesario el trabajo en el equipo, ya que evacuamos dudas, realizando puestas en común y despejando dudas entre nosotros; todo esto en el salón de clase. 
 
 ## Clase del 24/03/22
+![descarga](https://user-images.githubusercontent.com/88668277/160043597-bb3a3cfe-9a1d-4519-aa01-8a5a248ff55d.jpg)
+
 
 En la clase de hoy comprobamos que hay que ir a pasos agigantados o corremos el riesgo de quedar para atras en el curso.
 Aparte de esto aprendí como es valioso conocer al detalle los datos que estan en las lecturas previas (cosa que me comprometo a tratar de hacer aunque no tenga mucho tiempo para poder hacerlo.
