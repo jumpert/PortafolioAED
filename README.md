@@ -26,3 +26,12 @@ Como critica a las clases que hemos tenido hasta ahora, el echo de que van muy r
 A favor de la clase en si, la buena disposición de los profes a acercarse a quitarnos una duda o darnos una mano cuando nos ven un poco trancados en algo. Y que esten constantemente preguntando como vamos, esta muy bueno.
 
 Creo que para aprender esto, estuvo bueno que desarrollaramos los equipos durante la clase, aunque hay veces que es mejor trabajar todos juntos para sacar un problema que estar separados en los subequipos dentro de los grupos (aunque esto puede ser la falta de acostumbramiento a la metodologia por parte mia).
+
+## Entrega 28/03/22 
+
+La entrega de la UT1 estuvo muy cargada de materiales y trabajos, eran 10 trabajos, con ejercicios en cada uno...
+Algo lamentable, porque esta bien tener un buen impetu de trabajo, pero hay que considerar que si le materia es clase b, significa que hay que dedicarle al menos 12 horas semanales afuera y solo este trabajo exigia el doble de eso, solo en un trabajo.
+
+Siento que la entrega estaba para que solo la pudieran realizar personas que no trabajan o no tienen vida social, porque la verdad que con la cantidad de horas que demando la tarea estuvo inhumana.
+
+Otra cosa que siento es que no, profundice en ningun tema de los que suponian los trabajos, ya que fue tanto el cumulo de información que sobrecargan las capacidades fisicas y mentales de cualquier persona.
